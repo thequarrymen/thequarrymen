@@ -1,6 +1,6 @@
 
 <p align="center" dir="auto">
-<img src="https://files.catbox.moe/34yliz.png" style="max-width: 100%; "></p>
+<img src="https://files.catbox.moe/cx9t61.gif" style="max-width: 100%; "></p>
 
 <p align="center" dir="auto">
 <sub>cuds & hiding are <b><ins>appreciated.</ins></b> sign ata!</sub>
