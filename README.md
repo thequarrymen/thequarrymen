@@ -1,3 +1,5 @@
+<p align="center" dir="auto">
+<sub>i'm so weird about kris dreemurr & john lennon </sub>
 
 <p align="center" dir="auto">
 <img src="https://files.catbox.moe/cx9t61.gif" style="max-width: 100%; "></p>
@@ -11,6 +13,8 @@ would  you  kick  me  in  the  face  please?</sub>
 <p align="center" dir="auto"> 
 <img src="https://i.postimg.cc/GhyBkg60/wsnh9p.gif" style="max-width: 100%; "></p>
 
+<p align="center" dir="auto"> 
+<img src="https://files.catbox.moe/0jqab8.png" style="max-width: 100%; "></p> 
 <!--
 **thequarrymen/thequarrymen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
