@@ -2,7 +2,7 @@
 <sub>call me john or nathan </sub>
 
 <p align="center" dir="auto">
-<img src="https://files.catbox.moe/6iptyq.png" style="max-width: 100%; "></p>
+<img src="https://files.catbox.moe/fxccre.png" style="max-width: 100%; "></p>
 
 <p align="center" dir="auto">
 <sub>5teen, clumsy, and shy. <b><ins>BPD&ADHD.</ins></b> sign ata!</sub>
