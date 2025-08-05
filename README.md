@@ -1,20 +1,18 @@
 <p align="center" dir="auto">
-<sub>i'm so weird about kris dreemurr & john lennon </sub>
+<sub>call me john or nathan </sub>
 
 <p align="center" dir="auto">
-<img src="https://files.catbox.moe/cx9t61.gif" style="max-width: 100%; "></p>
+<img src="https://files.catbox.moe/6iptyq.png" style="max-width: 100%; "></p>
 
 <p align="center" dir="auto">
-<sub>cuds & hiding are <b><ins>appreciated.</ins></b> sign ata!</sub>
+<sub>5teen, clumsy, and shy. <b><ins>BPD&ADHD.</ins></b> sign ata!</sub>
 
 <p align="center" dir="auto">
-<sub>i'm   gonna  get  on  my  knees, 
-would  you  kick  me  in  the  face  please?</sub>
-<p align="center" dir="auto"> 
-<img src="https://i.postimg.cc/GhyBkg60/wsnh9p.gif" style="max-width: 100%; "></p>
+<sub>Nothing's Freudian anymore. A cigar's a cigar. I want to love something.</sub>
+
 
 <p align="center" dir="auto"> 
-<img src="https://files.catbox.moe/0jqab8.png" style="max-width: 100%; "></p> 
+<img src="https://files.catbox.moe/6vnrf4.png" style="max-width: 100%; "></p> 
 <!--
 **thequarrymen/thequarrymen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
