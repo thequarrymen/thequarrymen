@@ -5,10 +5,10 @@
 <img src="https://i.postimg.cc/KvHHmjD3/Untitled460-20250814122939.png" style="max-width: 100%; "></p>
 
 <p align="center" dir="auto">
-<sub>5teen, clumsy, and shy. <b><ins>BPD&ADHD.</ins></b> sign ata!</sub>
+<sub>Semi Insensitive. <b><ins>BPD&ADHD.</ins></b> sign ata!</sub>
 
 <p align="center" dir="auto">
-<sub>Im like a frat boy but oh so much fucking worse.</sub>
+<sub>I don't want you, but I hate to lose you.</sub>
 
 
 <p align="center" dir="auto"> 
