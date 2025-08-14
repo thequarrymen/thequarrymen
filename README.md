@@ -13,6 +13,7 @@
 
 <p align="center" dir="auto"> 
 <img src="https://files.catbox.moe/6vnrf4.png" style="max-width: 100%; "></p> 
+my discord is myfoible so hi add me if you want
 <!--
 **thequarrymen/thequarrymen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
