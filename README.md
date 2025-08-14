@@ -8,7 +8,7 @@
 <sub>5teen, clumsy, and shy. <b><ins>BPD&ADHD.</ins></b> sign ata!</sub>
 
 <p align="center" dir="auto">
-<sub>Nothing's Freudian anymore. A cigar's a cigar. I want to love something.</sub>
+<sub>Im like a frat boy but oh so much fucking worse.</sub>
 
 
 <p align="center" dir="auto"> 
