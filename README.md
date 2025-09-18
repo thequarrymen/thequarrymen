@@ -1,5 +1,5 @@
 <p align="center" dir="auto">
-<sub>call me john or nathan </sub>
+<sub>call me (kats)uki or nathan </sub>
 
 <p align="center" dir="auto">
 <img src="https://i.postimg.cc/KvHHmjD3/Untitled460-20250814122939.png" style="max-width: 100%; "></p>
